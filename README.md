@@ -28,3 +28,7 @@ https://ads.google.com/aw_cm/ExternalPreview?ocid=8404134229&euid=6515878747&pt=
 
 ## Website
 https://www.catalystx.com
+## Video ADS
+Available on my youtube channel videos and shorts.
+link: UCl4ueJU8xnXP5c70-sDnC5w
+
